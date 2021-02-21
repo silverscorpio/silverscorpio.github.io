@@ -1,1 +1,1 @@
-## Personal Website (RS)
+## Personal Blog/Website (RS)
